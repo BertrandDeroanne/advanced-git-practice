@@ -1,1 +1,0 @@
-# Grades for Bertrand Nicolas
